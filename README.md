@@ -1,4 +1,5 @@
 ## 政治
+- [合集·2025《精讲精练》配套视频（已完结）](https://space.bilibili.com/3546382501677960/channel/collectiondetail?sid=2967506)
 
 
 ## 英语
